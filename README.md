@@ -1,0 +1,2 @@
+# Kuro
+Become as god
